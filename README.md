@@ -5,7 +5,7 @@
 
 - 🌱 currently learning. **mas submod code**
 
-- 🤝 looking for. **help with**
+- 🤝 looking for. **nothing currently!*
 
 - 📫 reach me on. **discord** 
 
