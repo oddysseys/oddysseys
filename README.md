@@ -13,4 +13,6 @@
 
 <p align="center">
 <img align="center" width="320" height="445" src="https://spotify-github-profile.kittinanx.com/api/view?uid=ai4h7whh7g3pw2gbihy4ae8xy&cover_image=true&theme=default&show_offline=false&background_color=a02c2c&interchange=true&bar_color=7e1111&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)">
+  
+## <p align="center"> [my music!](https://www.last.fm/user/oddyss) </p>
 </p>
