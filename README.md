@@ -5,7 +5,8 @@
 <p align="center"> <img src="https://64.media.tumblr.com/eadd6728c8551dae0c78816207d4a7f0/76719b57e0d15c43-b6/s400x600/997d52b063238e798f123b13a1652ea4f0e15d60.gifv" </p>
 
 
-## <p align="center"> ( 17 ) ♰ any pronouns # audhd
+### <p align="center"> int & c+h freely! ♰ usually afk, sometimes nonverbal
+## <p align="center"> [strawpage - send gimmicks!](https://oddyss.straw.page) ⸝⸝ [pronouns!](https://en.pronouns.page/@oddyssey) ︵ [carrd!](https://oddyss.carrd.co)</p>
 
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=oddysseys&label=assassinated%20&color=a02c2c&style=for-the-badge" </p>
