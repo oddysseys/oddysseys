@@ -6,7 +6,7 @@
 
 
 ### <p align="center"> int & c+h freely! ♰ usually afk, sometimes nonverbal
-## <p align="center"> [strawpage - send gimmicks!](https://oddyss.straw.page) ⸝⸝ [pronouns!](https://en.pronouns.page/@oddyssey) ︵ [carrd!](https://oddyss.carrd.co)</p>
+## <p align="center"> [strawpage - send gimmicks!](https://oddyss.straw.page) ⸝⸝ [pronouns!](https://pronouns.cc/@buck) ︵ [carrd!](https://oddyss.carrd.co)</p>
 
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=oddysseys&label=assassinated%20&color=a02c2c&style=for-the-badge" </p>
