@@ -1,6 +1,9 @@
 <br>
 <i>SOLDAT?</i>   <p align="center"><img src="https://files.catbox.moe/onacou.gif"</p>‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎ <p align="right"><b><i>READY TO COMPLY.</i></b></p>
 </br>
+
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=oddysseys&label=assassinated%20&color=771212&style=for-the-badge" </p>
+
 <p align="center"> <img src="https://files.catbox.moe/0csiwr.png" width="500" height="500" </p>‎‎‎
 
   
