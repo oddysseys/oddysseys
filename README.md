@@ -6,7 +6,7 @@
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=oddysseys&label=assassinated%20&color=771212&style=for-the-badge" </p>
   
-### ‎<p align="center"> <b>[ATA.](https://buck.atabook.org)  [STRWPG.](https://odyss.straw.page) [CARRD.](https://oddyss.carrd.co) [LAST.FM](https://www.last.fm/user/oddyss)</b></p>
+### ‎<p align="center"> <b>[ATA.](https://buck.atabook.org)  [STRWPG.](https://odyss.straw.page) [RENTRY.](https://rentry.co/oddyss) [CARRD.](https://oddyss.carrd.co) [LAST.FM](https://www.last.fm/user/oddyss)</b></p>
 
 
 
